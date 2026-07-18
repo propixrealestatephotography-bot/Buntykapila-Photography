@@ -1,1 +1,0 @@
-# Buntykapila-Photography
